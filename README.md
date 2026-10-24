@@ -1,0 +1,1 @@
+# TECH-AVERIX-Digital-Twin-Challenge-2026
